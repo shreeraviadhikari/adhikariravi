@@ -1,7 +1,7 @@
 ### Hi there 👋
 
-
-![alt text](https://github.com/adhikariravi/adhikariravi/blob/master/whaat.gif?raw=true)
+[9867098221] (tel:9867098221)
+ <!-- ![alt text](https://github.com/adhikariravi/adhikariravi/blob/master/whaat.gif?raw=true) -->
 
 <!--
 **adhikariravi/adhikariravi** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
